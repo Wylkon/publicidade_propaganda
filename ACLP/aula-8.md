@@ -2,7 +2,7 @@ Arte Cultura, Leitura do Presente
 =================================
 05/05/17
 
-## Arte no Sécuo XX
+## Arte no Século XX
 
 - Variedade de estilos
   - Vanguardas
