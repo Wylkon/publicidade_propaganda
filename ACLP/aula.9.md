@@ -117,3 +117,12 @@ Andy warhol lines up a shot during the filming of Taylor Mead's Ass at his studi
 - Yves Klein (1928 - 1962)
   - Seus trabalhos **monocromáticos** (final da década de 1950)
   - patenteou a cor Blue Klein
+  - Antropometria
+  - Telas com formas provocadas por fogo
+  - apresentou sua obra sob formas que a arte é reconhecida: pinturas, livro, composição musical, removendo o conteúdo esperado destas formas.
+  - pinturas sem imagens, um libro sem palavras, uma composição musical sem composição musical sem composição de fato, restando apenas o meio expressivo.
+
+- John Chamberlain (1927 - 2011)
+- Jean Tinguely (1925 - 1991)
+- Niki de Saint Phalle (1930 - 2002)
+  - Assemblage
